@@ -1,2 +1,2 @@
-# tempso_modernos
+# tempos_modernos
 Pois o que eu acabo de falar já está no passado ^^.
